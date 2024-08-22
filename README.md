@@ -1,6 +1,6 @@
 Hi 👋 My name is Stephanie
 ==========================
-Builiding partnerships in Tech
+Builiding strategic and meaningful partnerships in Tech
 ------------------------------
 * 🌍  I'm based in the San Francisco Bay Area
 
